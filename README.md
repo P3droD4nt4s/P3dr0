@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything that i can
 - 📫 How to reach me, even i dont know this
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i like paranormal order
+- ⚡ Fun fact: i like paranormal order and i have a Ps2
 
 <!---
 P3dr0-uc-trash/P3dr0-uc-trash is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
